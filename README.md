@@ -1,1 +1,1 @@
-https://gleonardoalano.github.io/explorer-projeto-1-html/
+https://gleonardoalano.github.io/explorer-projeto-2-html/
